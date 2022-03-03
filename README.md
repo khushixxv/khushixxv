@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @khushixxv
+- 👀 I’m interested in computer science!
+- 📫 How to reach me: email khuship1025@gmail.com
